@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Porta Chaves Decorativo em MDF Preto 3mm - com dupla face** — R$ 9,00 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/2LZWwScz6S)
+- **quadro decorativo infantil safari personalizado bichinhos 3 peças, safari, leão, leaozinho, lilás** — R$ 14,97 | 56% OFF. [Ver na Shopee](https://s.shopee.com.br/906Qsi9CnQ)
+- **Kit 36 Faca Garfo Colher De Jantar Aço Inoxidável Prata Polimento Tecnologia Casa Cozinha Utensílios De Mesa Ouro E Prata** — R$ 69,90 | 61% OFF. [Ver na Shopee](https://s.shopee.com.br/1149Lzltxg)
+- **1 Kit Carteira Anti Furto Homem Preta Qualidade Premium Tecnologia Anti Rfid Capacidade Máxima Ultra Fina Portátil** — R$ 16,50 | 59% OFF. [Ver na Shopee](https://s.shopee.com.br/8pn0gOIHqY)
+- **Jaqueta Fitness Feminina Poliamida Premium Modeladora Não Transparente UV50  Tecnologia Premium** — R$ 69,90 | 53% OFF. [Ver na Shopee](https://s.shopee.com.br/AUvEfSBwSi)
+
 - **Base Em Bastão Que Muda De Cor – Tecnologia Inteligente De Adaptação De Pele , Tudo Um Com Pincel , Cobertura Edificável** — R$ 25,47 | 67% OFF. [Ver na Shopee](https://s.shopee.com.br/5q9NZnUWcP)
 - **Tênis Infantil Kidy Original Energy Menina Tecnologia Respitec Confortável Esportivo Antiderrapante** — R$ 59,99 | 62% OFF. [Ver na Shopee](https://s.shopee.com.br/3VlSnVdPLe)
 - **Kit 18 Faca Garfo Colher De Jantar Aço Inoxidável Prata Polimento Tecnologia Casa Cozinha Utensílios De Mesa** — R$ 31,59 | 60% OFF. [Ver na Shopee](https://s.shopee.com.br/2BG5D3mssb)
