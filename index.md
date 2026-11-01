@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **1 Kit Carteira Anti Furto Homem Preta Qualidade Premium Tecnologia Anti Rfid Capacidade Máxima Ultra Fina Portátil** — R$ 16,50 | 59% OFF. [Ver na Shopee](https://s.shopee.com.br/1BNZqaKZNI)
+- **Jaqueta Fitness Feminina Poliamida Premium Modeladora Não Transparente UV50  Tecnologia Premium** — R$ 69,90 | 53% OFF. [Ver na Shopee](https://s.shopee.com.br/2gCNdLErKR)
+- **Kit 36 Garfo De Jantar Aço Inoxidável Prata Polimento Tecnologia Casa Cozinha Utensílios De Mesa** — R$ 58,99 | 51% OFF. [Ver na Shopee](https://s.shopee.com.br/qkjRyLq3G)
+- **Teclado Infantil de Animais Musical com Teclas Coloridas e Sons Interativos para Crianças e bebes** — R$ 57,90 | 49% OFF. [Ver na Shopee](https://s.shopee.com.br/4fxRijhhlD)
+- **Kit 12 Colher De Jantar Aço Inoxidável Prata Polimento Tecnologia Casa Cozinha Utensílios De Mesa** — R$ 19,90 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/LoSr3Nk4D)
+
 - **Porta Chaves Decorativo em MDF Preto 3mm - com dupla face** — R$ 9,00 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/2LZWwScz6S)
 - **quadro decorativo infantil safari personalizado bichinhos 3 peças, safari, leão, leaozinho, lilás** — R$ 14,97 | 56% OFF. [Ver na Shopee](https://s.shopee.com.br/906Qsi9CnQ)
 - **Kit 36 Faca Garfo Colher De Jantar Aço Inoxidável Prata Polimento Tecnologia Casa Cozinha Utensílios De Mesa Ouro E Prata** — R$ 69,90 | 61% OFF. [Ver na Shopee](https://s.shopee.com.br/1149Lzltxg)
