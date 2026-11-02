@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Kit Quadros Futebol Jogadores MDF Preto 3mm Decoração Esportiva Para Quarto Sala Escritório ** — R$ 14,70 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/5fq12w6Tge)
+- **Kit Decorativo Gamer Game Over Controle Símbolos MDF Preto 3mm Para Quarto Sala Escritório Parede ** — R$ 14,70 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/6AmHdrDNIZ)
+- **Kit Quadros Mãe Coração MDF Preto 3mm Decoração Afetiva Para Sala Quarto Escritório Parede ** — R$ 14,70 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/5fq12wFHJU)
+- **Kit 3 Quadros Fé Amor MDF Preto 3mm Com Coração Decorativo Para Quarto Sala Escritório Parede ** — R$ 14,70 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/7KyF2008Iw)
+- **Quadro Decorativo para parede Família | em MDF 3mm Preto** — R$ 15,90 | 60% OFF. [Ver na Shopee](https://s.shopee.com.br/5q9RFEsZkm)
+
 - **1 Kit Carteira Anti Furto Homem Preta Qualidade Premium Tecnologia Anti Rfid Capacidade Máxima Ultra Fina Portátil** — R$ 16,50 | 59% OFF. [Ver na Shopee](https://s.shopee.com.br/1BNZqaKZNI)
 - **Jaqueta Fitness Feminina Poliamida Premium Modeladora Não Transparente UV50  Tecnologia Premium** — R$ 69,90 | 53% OFF. [Ver na Shopee](https://s.shopee.com.br/2gCNdLErKR)
 - **Kit 36 Garfo De Jantar Aço Inoxidável Prata Polimento Tecnologia Casa Cozinha Utensílios De Mesa** — R$ 58,99 | 51% OFF. [Ver na Shopee](https://s.shopee.com.br/qkjRyLq3G)
