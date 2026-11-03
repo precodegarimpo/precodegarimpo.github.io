@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Roteador Tp Link Ex521 Wifi 6 Dual Band Ax3000 4 Antenas EasyMesh Cobertura Wifi Casa Grande** — R$ 249,90 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/AUvGna2SKI)
+- **Porta Chaves Palavra Gratidão Decorativo Com Ganchos Mdf 3mm** — R$ 15,90 | 47% OFF. [Ver na Shopee](https://s.shopee.com.br/9zz1e4DsRe)
+- **quadro decorativo infantil safari personalizado bichinhos 3 peças, safari, leão, leaozinho, Verde** — R$ 10,98 | 47% OFF. [Ver na Shopee](https://s.shopee.com.br/8VADrJSWa5)
+- **12 Peças Garfo Aço Inox Prata Restaurante Faqueiro Polimento Tecnologia Cozinha Aparelho** — R$ 21,59 | 46% OFF. [Ver na Shopee](https://s.shopee.com.br/BV5vgfSOJ)
+- **tema : ALERQUINA MD1 kit lembrancinha com  200/100 ITENS SEM/COM NOME - ENVIO IMEDIATO** — R$ 16,69 | 46% OFF. [Ver na Shopee](https://s.shopee.com.br/8AXNShKrAV)
+
 - **Kit Quadros Futebol Jogadores MDF Preto 3mm Decoração Esportiva Para Quarto Sala Escritório ** — R$ 14,70 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/5fq12w6Tge)
 - **Kit Decorativo Gamer Game Over Controle Símbolos MDF Preto 3mm Para Quarto Sala Escritório Parede ** — R$ 14,70 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/6AmHdrDNIZ)
 - **Kit Quadros Mãe Coração MDF Preto 3mm Decoração Afetiva Para Sala Quarto Escritório Parede ** — R$ 14,70 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/5fq12wFHJU)
