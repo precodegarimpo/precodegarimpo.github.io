@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Porta Chaves Palavra Gratidão Decorativo Com Ganchos Mdf 3mm** — R$ 15,90 | 47% OFF. [Ver na Shopee](https://s.shopee.com.br/8pn5rexPx9)
+- **quadro decorativo infantil safari personalizado bichinhos 3 peças, safari, leão, leaozinho, Verde** — R$ 10,98 | 47% OFF. [Ver na Shopee](https://s.shopee.com.br/9zz3Fo1MYi)
+- **12 Peças Garfo Aço Inox Prata Restaurante Faqueiro Polimento Tecnologia Cozinha Aparelho** — R$ 21,59 | 46% OFF. [Ver na Shopee](https://s.shopee.com.br/3LS9JJSOyc)
+- **tema : ALERQUINA MD1 kit lembrancinha com  200/100 ITENS SEM/COM NOME - ENVIO IMEDIATO** — R$ 16,69 | 46% OFF. [Ver na Shopee](https://s.shopee.com.br/gRO8eSVWn)
+- **Macaquinho Fitness Tecido 50uv+ com a mais nova tecnologia de modelagem e 0 transparência** — R$ 41,20 | 45% OFF. [Ver na Shopee](https://s.shopee.com.br/9KjMSKxF7F)
+
 - **Roteador Tp Link Ex521 Wifi 6 Dual Band Ax3000 4 Antenas EasyMesh Cobertura Wifi Casa Grande** — R$ 249,90 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/AUvGna2SKI)
 - **Porta Chaves Palavra Gratidão Decorativo Com Ganchos Mdf 3mm** — R$ 15,90 | 47% OFF. [Ver na Shopee](https://s.shopee.com.br/9zz1e4DsRe)
 - **quadro decorativo infantil safari personalizado bichinhos 3 peças, safari, leão, leaozinho, Verde** — R$ 10,98 | 47% OFF. [Ver na Shopee](https://s.shopee.com.br/8VADrJSWa5)
