@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Kit 100 Porta Crachá Vertical Rígido Cores Suporte Crachá Cartão PVC** — R$ 27,17 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/5fq5h9lsI8)
+- **Carimbo Obrigada 4cmx4cm para sacolas kraft tags personalize sua embalagem** — R$ 13,90 | 54% OFF. [Ver na Shopee](https://s.shopee.com.br/6VPCggihbF)
+- **Conjunto Espátula mais Colher de Silicone Antiaderente Utilidade Domestica** — R$ 25,99 | 52% OFF. [Ver na Shopee](https://s.shopee.com.br/8pn7Symwx1)
+- **Lixeira 5 Litros Com Tampa Oscilante Cesto de Plástico Preto Cozinha Banheiro Escritório** — R$ 22,39 | 51% OFF. [Ver na Shopee](https://s.shopee.com.br/7AetTt7In3)
+- **KIT De Espátulas mais Colher de Silicone Antiaderente Utilidade Domestica Multifuncional** — R$ 25,98 | 52% OFF. [Ver na Shopee](https://s.shopee.com.br/9APxralgH3)
+
 - **Porta Chaves Palavra Gratidão Decorativo Com Ganchos Mdf 3mm** — R$ 15,90 | 47% OFF. [Ver na Shopee](https://s.shopee.com.br/8pn5rexPx9)
 - **quadro decorativo infantil safari personalizado bichinhos 3 peças, safari, leão, leaozinho, Verde** — R$ 10,98 | 47% OFF. [Ver na Shopee](https://s.shopee.com.br/9zz3Fo1MYi)
 - **12 Peças Garfo Aço Inox Prata Restaurante Faqueiro Polimento Tecnologia Cozinha Aparelho** — R$ 21,59 | 46% OFF. [Ver na Shopee](https://s.shopee.com.br/3LS9JJSOyc)
