@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Termômetro Culinário Cozinha Digital Espeto P/ Cozinha Temperatura Top** — R$ 12,97 | 74% OFF. [Ver na Shopee](https://s.shopee.com.br/AUvMzjHQrq)
+- **Tapete Escorredor Louças Copos Panelas Pia Aparador de Louça em Microfibra Tapete Escorredor 30X40CM** — R$ 19,75 | 72% OFF. [Ver na Shopee](https://s.shopee.com.br/gRRHesrp3)
+- **Conjunto saleiro e pimenteiro de vidro preto e branco 2 peças** — R$ 23,89 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/1BNhsZqxoA)
+- **Pote Organizador Flip 2 Litros Mulituso Odeio Bagunça, Mas Faço Xplast** — R$ 15,02 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/1qdOfnoQSU)
+- **Kit 5 Potes Herméticos Vidro Tampa Bambu Condimentos Organizador Temperos Alimentos Porta Mantimento** — R$ 80,90 | 59% OFF. [Ver na Shopee](https://s.shopee.com.br/6fieQgW1dt)
+
 - **Kit 100 Porta Crachá Vertical Rígido Cores Suporte Crachá Cartão PVC** — R$ 27,17 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/5fq5h9lsI8)
 - **Carimbo Obrigada 4cmx4cm para sacolas kraft tags personalize sua embalagem** — R$ 13,90 | 54% OFF. [Ver na Shopee](https://s.shopee.com.br/6VPCggihbF)
 - **Conjunto Espátula mais Colher de Silicone Antiaderente Utilidade Domestica** — R$ 25,99 | 52% OFF. [Ver na Shopee](https://s.shopee.com.br/8pn7Symwx1)
