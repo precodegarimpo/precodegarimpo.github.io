@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Kit 2 Peças Inox – Colher de Arroz Inox + Concha de Feijão Inox Cozinha** — R$ 15,90 | 49% OFF. [Ver na Shopee](https://s.shopee.com.br/8pnAX3vJLs)
+- **12 Peças Garfo Aço Inox Prata Restaurante Faqueiro Polimento Tecnologia Cozinha Aparelho** — R$ 21,59 | 46% OFF. [Ver na Shopee](https://s.shopee.com.br/1Bm0ftOAk)
+- **Macaquinho Fitness Tecido 50uv+ com a mais nova tecnologia de modelagem e 0 transparência** — R$ 41,20 | 45% OFF. [Ver na Shopee](https://s.shopee.com.br/3VleB6O3Nk)
+- **Kit Cantinho da Bebida 4 Peças  mdf 3mm acompanha dupla face** — R$ 16,90 | 43% OFF. [Ver na Shopee](https://s.shopee.com.br/70LWLhXZLp)
+- **PEANAX (300mg Levagen® + Tecnologia LipSperse) - 30 Cápsulas** — R$ 63,90 | 44% OFF. [Ver na Shopee](https://s.shopee.com.br/7fbD8lhjTF)
+
 - **Termômetro Culinário Cozinha Digital Espeto P/ Cozinha Temperatura Top** — R$ 12,97 | 74% OFF. [Ver na Shopee](https://s.shopee.com.br/AUvMzjHQrq)
 - **Tapete Escorredor Louças Copos Panelas Pia Aparador de Louça em Microfibra Tapete Escorredor 30X40CM** — R$ 19,75 | 72% OFF. [Ver na Shopee](https://s.shopee.com.br/gRRHesrp3)
 - **Conjunto saleiro e pimenteiro de vidro preto e branco 2 peças** — R$ 23,89 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/1BNhsZqxoA)
