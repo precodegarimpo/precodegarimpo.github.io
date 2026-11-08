@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Caixa 7 Litros Organizadora Rattan Com Tampa Preta Empilhavel** — R$ 17,92 | 55% OFF. [Ver na Shopee](https://s.shopee.com.br/7fbEkYU0Sb)
+- **Peneira Inoxidável com 3 Peças 8, 10, 12  Peneira Coador Em Aço Inox Para Cozinha 3 Tamanhos ** — R$ 18,97 | 53% OFF. [Ver na Shopee](https://s.shopee.com.br/3LSFaakVFv)
+- **Kit 4 Carimbos Hamburgueria Lanches hamburguer para sacola saco kraft delivery tags** — R$ 37,90 | 49% OFF. [Ver na Shopee](https://s.shopee.com.br/60T0lVILfs)
+- **tema : ALERQUINA MD1 kit lembrancinha com  200/100 ITENS SEM/COM NOME - ENVIO IMEDIATO** — R$ 16,69 | 46% OFF. [Ver na Shopee](https://s.shopee.com.br/5fqAMsxcPr)
+- **Caixa Térmica Cooler Preto - Azul - Vermelha Com Alça 12 Litros Mor** — R$ 69,95 | 48% OFF. [Ver na Shopee](https://s.shopee.com.br/2gCYnMn2bj)
+
 - **Kit 2 Peças Inox – Colher de Arroz Inox + Concha de Feijão Inox Cozinha** — R$ 15,90 | 49% OFF. [Ver na Shopee](https://s.shopee.com.br/8pnAX3vJLs)
 - **12 Peças Garfo Aço Inox Prata Restaurante Faqueiro Polimento Tecnologia Cozinha Aparelho** — R$ 21,59 | 46% OFF. [Ver na Shopee](https://s.shopee.com.br/1Bm0ftOAk)
 - **Macaquinho Fitness Tecido 50uv+ com a mais nova tecnologia de modelagem e 0 transparência** — R$ 41,20 | 45% OFF. [Ver na Shopee](https://s.shopee.com.br/3VleB6O3Nk)
