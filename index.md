@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Kit de utilidades domésticas para cozinha com 2 amoladores de facas + peneira em aço inox** — R$ 12,00 | 80% OFF. [Ver na Shopee](https://s.shopee.com.br/7pugpt6xFe)
+- **Camiseta Estampada Meme Tecnologia da Informação Programador faculdade Informática ¨Garoto Programa¨** — R$ 26,79 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/5LDLrIc3fp)
+- **Kit Colher de Silicone Linha Utensílios de cozinha Macio e Resistente Variáveis Utilidade Domestica** — R$ 19,39 | 63% OFF. [Ver na Shopee](https://s.shopee.com.br/5LDLrIGTKD)
+- **Blusa Térmica Infantil Flanelada – Segunda Pele com Alta Elasticidade e Tecnologia Fresh Dry** — R$ 32,94 | 40% OFF. [Ver na Shopee](https://s.shopee.com.br/6VPJFOzhzi)
+- **Quadro Placas Decorativas Justin Bieber  Discografia Album em MDF 30x20cm Full HD** — R$ 15,90 | 41% OFF. [Ver na Shopee](https://s.shopee.com.br/3B8rHIgnBM)
+
 - **Caixa 7 Litros Organizadora Rattan Com Tampa Preta Empilhavel** — R$ 17,92 | 55% OFF. [Ver na Shopee](https://s.shopee.com.br/7fbEkYU0Sb)
 - **Peneira Inoxidável com 3 Peças 8, 10, 12  Peneira Coador Em Aço Inox Para Cozinha 3 Tamanhos ** — R$ 18,97 | 53% OFF. [Ver na Shopee](https://s.shopee.com.br/3LSFaakVFv)
 - **Kit 4 Carimbos Hamburgueria Lanches hamburguer para sacola saco kraft delivery tags** — R$ 37,90 | 49% OFF. [Ver na Shopee](https://s.shopee.com.br/60T0lVILfs)
