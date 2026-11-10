@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Kit 10 Abraçadeiras Organizadoras de Cabos 15 cm com Fecho de Contato Reutilizável** — R$ 19,97 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/4qH6ftQLa8)
+- **quadro decorativo infantil safari personalizado bichinhos 3 peças, safari, leão, leaozinho, Verde** — R$ 10,98 | 47% OFF. [Ver na Shopee](https://s.shopee.com.br/8AXYe0VJgL)
+- **Caixa Térmica Cooler  Com  Tampa  Alça  34 Litros Mor Cores** — R$ 126,95 | 49% OFF. [Ver na Shopee](https://s.shopee.com.br/20wvIfXH63)
+- **Forma de Gelo de Silicone 15 Divisórias Retangular Silicone Cubos Livre BPA Cubos Cores Sortidas** — R$ 22,25 | 44% OFF. [Ver na Shopee](https://s.shopee.com.br/8KqyqJ9AFA)
+- **Sérum Facial Ácido Hialurônico Anti-Idade Hidratação Intensa Suaviza Linhas de Expressão 20ml** — R$ 29,00 | 41% OFF. [Ver na Shopee](https://s.shopee.com.br/1Bquwsony)
+
 - **Kit de utilidades domésticas para cozinha com 2 amoladores de facas + peneira em aço inox** — R$ 12,00 | 80% OFF. [Ver na Shopee](https://s.shopee.com.br/7pugpt6xFe)
 - **Camiseta Estampada Meme Tecnologia da Informação Programador faculdade Informática ¨Garoto Programa¨** — R$ 26,79 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/5LDLrIc3fp)
 - **Kit Colher de Silicone Linha Utensílios de cozinha Macio e Resistente Variáveis Utilidade Domestica** — R$ 19,39 | 63% OFF. [Ver na Shopee](https://s.shopee.com.br/5LDLrIGTKD)
