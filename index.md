@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Abridor De Latas E Garrafas Aço Inox Reforçado Combinado Universal Utilidades** — R$ 10,65 | 73% OFF. [Ver na Shopee](https://s.shopee.com.br/1qdWhFGkWh)
+- **Brinquedo Lesma Caracol Lagarta De Minhocas Alivia o Estresse** — R$ 15,00 | 63% OFF. [Ver na Shopee](https://s.shopee.com.br/3g5AsZsUwD)
+- **Espremedor de Limão em inox 20cm** — R$ 18,95 | 62% OFF. [Ver na Shopee](https://s.shopee.com.br/1LhG6KIeXY)
+- **Suporte De Filtro P/ Café Grande Com Alça Grande** — R$ 11,75 | 61% OFF. [Ver na Shopee](https://s.shopee.com.br/BVIiBN5uT)
+- **Bichos De Apertar Squish Cachorro Antistress Squish Squishy Grande Sensorial Brinquedo De Apertar Anti Stress Fidget Toy** — R$ 22,98 | 62% OFF. [Ver na Shopee](https://s.shopee.com.br/1gK6Uu06zl)
+
 - **Kit 10 Abraçadeiras Organizadoras de Cabos 15 cm com Fecho de Contato Reutilizável** — R$ 19,97 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/4qH6ftQLa8)
 - **quadro decorativo infantil safari personalizado bichinhos 3 peças, safari, leão, leaozinho, Verde** — R$ 10,98 | 47% OFF. [Ver na Shopee](https://s.shopee.com.br/8AXYe0VJgL)
 - **Caixa Térmica Cooler  Com  Tampa  Alça  34 Litros Mor Cores** — R$ 126,95 | 49% OFF. [Ver na Shopee](https://s.shopee.com.br/20wvIfXH63)
