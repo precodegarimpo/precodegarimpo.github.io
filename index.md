@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Repelente Eletrônico Ultrassônico Para Insetos Repelente de Baratas Mosquitos e Ratos** — R$ 19,99 | 67% OFF. [Ver na Shopee](https://s.shopee.com.br/9fMPdLb5JM)
+- **Repelente Eletrônico Ultrassônico Bivolt Para Ambientes Internos** — R$ 18,99 | 62% OFF. [Ver na Shopee](https://s.shopee.com.br/AAIgEGZBIR)
+- **Aparelho Repelente Ultrassônico Contra Insetos Anti-Pragas Bivolt** — R$ 19,99 | 60% OFF. [Ver na Shopee](https://s.shopee.com.br/AUvWcsXucT)
+- **Suporte Porta Esponja Gancho Aço Inox Cromado Prateado Escovado Bucha Acessório de Pia Cozinha Cuba Organização Demima** — R$ 12,90 | 40% OFF. [Ver na Shopee](https://s.shopee.com.br/2BGOhXUqIW)
+- **Volante Para Crianças Banco Traseiro Com Chave De Carro Pretend Driving Simulated Steering Wheel Toy Luz E Música** — R$ 94,05 | 45% OFF. [Ver na Shopee](https://s.shopee.com.br/7VHv3KOUBg)
+
 - **Abridor De Latas E Garrafas Aço Inox Reforçado Combinado Universal Utilidades** — R$ 10,65 | 73% OFF. [Ver na Shopee](https://s.shopee.com.br/1qdWhFGkWh)
 - **Brinquedo Lesma Caracol Lagarta De Minhocas Alivia o Estresse** — R$ 15,00 | 63% OFF. [Ver na Shopee](https://s.shopee.com.br/3g5AsZsUwD)
 - **Espremedor de Limão em inox 20cm** — R$ 18,95 | 62% OFF. [Ver na Shopee](https://s.shopee.com.br/1LhG6KIeXY)
