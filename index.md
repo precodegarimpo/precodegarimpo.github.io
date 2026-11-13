@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Mini Seladora Lacra Fecha Poratil de Embalagem Plástica Máquina Portátil Seladora Pilha Para Cozinha** — R$ 11,93 | 83% OFF. [Ver na Shopee](https://s.shopee.com.br/6fipdHRhRN)
+- **Kits Bicos Confeiteiro Para Confeitar Bolos Inox Decorador Bisnaga De Bolo Com** — R$ 21,35 | 73% OFF. [Ver na Shopee](https://s.shopee.com.br/8Kr3cLLM47)
+- **Termômetro De Cozinha Culinário  Digital Espeto P/ Cozinha temperatura Top** — R$ 14,25 | 71% OFF. [Ver na Shopee](https://s.shopee.com.br/20x04hjSuw)
+- **Abridor Pote Vidro Tampa Metal Conserva Manual Universal Ajustável Abre Rápido Fácil** — R$ 23,25 | 67% OFF. [Ver na Shopee](https://s.shopee.com.br/8AXdQ1zzW6)
+- **Jogo de Talheres Faqueiro Inox 24 Peças Wincy Casa** — R$ 40,98 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/5fqIRRVVTL)
+
 - **Repelente Eletrônico Ultrassônico Para Insetos Repelente de Baratas Mosquitos e Ratos** — R$ 19,99 | 67% OFF. [Ver na Shopee](https://s.shopee.com.br/9fMPdLb5JM)
 - **Repelente Eletrônico Ultrassônico Bivolt Para Ambientes Internos** — R$ 18,99 | 62% OFF. [Ver na Shopee](https://s.shopee.com.br/AAIgEGZBIR)
 - **Aparelho Repelente Ultrassônico Contra Insetos Anti-Pragas Bivolt** — R$ 19,99 | 60% OFF. [Ver na Shopee](https://s.shopee.com.br/AUvWcsXucT)
