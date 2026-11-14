@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Jogo Stop Eletrônico com Cartas Educativo Divertido Brinquedo Interativo 10 Segundos Família Criança** — R$ 47,00 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/60TAKm54r1)
+- **Cabo USB Tipo B 5 Metros Impressora Scanner Interface de áudio Bateria Eletrônica Teclado Piano Premium** — R$ 14,90 | 67% OFF. [Ver na Shopee](https://s.shopee.com.br/7KyXvE0099)
+- **Cabo USB Tipo B com 5 metros para Impressora Scanner Multifuncional Bateria Eletrônica Teclado** — R$ 14,90 | 67% OFF. [Ver na Shopee](https://s.shopee.com.br/7VHy7WzMoA)
+- **Suporte de Baba Eletrônica Para Berço Camera Yoosee 360 Giratória Baby Monitor VB603 Taktark Bm813 Intelbras IM4C** — R$ 22,90 | 54% OFF. [Ver na Shopee](https://s.shopee.com.br/8AXeukwpS6)
+- **Alicate De Corte Rente Diagonal Zero 170 Azul Afiado Para Eletrônica Precisão Isolado Fios Plato 132** — R$ 20,67 | 53% OFF. [Ver na Shopee](https://s.shopee.com.br/1gKBAoLZeS)
+
 - **Mini Seladora Lacra Fecha Poratil de Embalagem Plástica Máquina Portátil Seladora Pilha Para Cozinha** — R$ 11,93 | 83% OFF. [Ver na Shopee](https://s.shopee.com.br/6fipdHRhRN)
 - **Kits Bicos Confeiteiro Para Confeitar Bolos Inox Decorador Bisnaga De Bolo Com** — R$ 21,35 | 73% OFF. [Ver na Shopee](https://s.shopee.com.br/8Kr3cLLM47)
 - **Termômetro De Cozinha Culinário  Digital Espeto P/ Cozinha temperatura Top** — R$ 14,25 | 71% OFF. [Ver na Shopee](https://s.shopee.com.br/20x04hjSuw)
