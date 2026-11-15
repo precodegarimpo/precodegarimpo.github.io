@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Bolha Sabão Bolinha Festa Lembrancinha  Infantil Prenda  Bolha De Sabão Brinquedo Bastão Modelo Circulo Bacia Divertido** — R$ 14,89 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/1W0mc8kIlX)
+- **Pião Musical Luminoso Com Lançador Automatico Piao Com Luz e Som Laser Brinquedo Infantil para Meninos e Meninas KL80095** — R$ 25,00 | 52% OFF. [Ver na Shopee](https://s.shopee.com.br/6VPSZKRGcv)
+- **Mola Maluca multicoloridas    Led  colorida com Gliter Colorida Brinquedo Kit Lembrancinha** — R$ 13,99 | 47% OFF. [Ver na Shopee](https://s.shopee.com.br/1BNwDWlZRN)
+- **Brinquedo Montessori Minhoca Colorida de Madeira Educativo Articulado Coordenação Motora Infantil** — R$ 13,89 | 44% OFF. [Ver na Shopee](https://s.shopee.com.br/gRfcbnTSI)
+- **Boneca Fofa Patins Dance Girl Brinquedo Musical Som Luzes Musical Com Luzes Coloridas** — R$ 47,88 | 40% OFF. [Ver na Shopee](https://s.shopee.com.br/20x3D3iOkg)
+
 - **Jogo Stop Eletrônico com Cartas Educativo Divertido Brinquedo Interativo 10 Segundos Família Criança** — R$ 47,00 | 70% OFF. [Ver na Shopee](https://s.shopee.com.br/60TAKm54r1)
 - **Cabo USB Tipo B 5 Metros Impressora Scanner Interface de áudio Bateria Eletrônica Teclado Piano Premium** — R$ 14,90 | 67% OFF. [Ver na Shopee](https://s.shopee.com.br/7KyXvE0099)
 - **Cabo USB Tipo B com 5 metros para Impressora Scanner Multifuncional Bateria Eletrônica Teclado** — R$ 14,90 | 67% OFF. [Ver na Shopee](https://s.shopee.com.br/7VHy7WzMoA)
