@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Descanso de Mesa para Travessa e Panela MDF Folha Monstera Kit Econômico Utilidade Doméstica** — R$ 11,90 | 68% OFF. [Ver na Shopee](https://s.shopee.com.br/3VlsoEq7jj)
+- **Porta Crachá Rígido Vertical Colorido Kit com 500 Unidades** — R$ 84,97 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/9KjfkxByRr)
+- **Kit 50 Porta Crachá Rígido Vertical Cores Variadas Identificação Crachá** — R$ 20,37 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/9AQFYeCbmq)
+- **Kit 25 Porta Crachá Vertical Rígido Idêntificação** — R$ 20,37 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/2VtLcObzKC)
+- **Porta Crachá 10 Unidades Rígido Vertical Cartão Crachá Identificação** — R$ 13,57 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/906pMLDF7p)
+
 - **Bolha Sabão Bolinha Festa Lembrancinha  Infantil Prenda  Bolha De Sabão Brinquedo Bastão Modelo Circulo Bacia Divertido** — R$ 14,89 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/1W0mc8kIlX)
 - **Pião Musical Luminoso Com Lançador Automatico Piao Com Luz e Som Laser Brinquedo Infantil para Meninos e Meninas KL80095** — R$ 25,00 | 52% OFF. [Ver na Shopee](https://s.shopee.com.br/6VPSZKRGcv)
 - **Mola Maluca multicoloridas    Led  colorida com Gliter Colorida Brinquedo Kit Lembrancinha** — R$ 13,99 | 47% OFF. [Ver na Shopee](https://s.shopee.com.br/1BNwDWlZRN)
