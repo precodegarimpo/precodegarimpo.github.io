@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Descascador De Legumes Espiral Funil 12 cm Formato de Tiras** — R$ 22,89 | 67% OFF. [Ver na Shopee](https://s.shopee.com.br/4VeRWDdvOh)
+- **Tábua de Cortar Carne de Plástico 37cm x 24cm** — R$ 15,82 | 60% OFF. [Ver na Shopee](https://s.shopee.com.br/40iAvIfpPY)
+- **Abridor De Tampas Universal Potes Vidros Conserva Abre Fácil ONE TOUTCH** — R$ 36,95 | 51% OFF. [Ver na Shopee](https://s.shopee.com.br/5q9p6fYqgJ)
+- **Kit 10 Potes De Vidro Herméticos Redondo 300ml Temperos Tampa Bambu** — R$ 98,99 | 45% OFF. [Ver na Shopee](https://s.shopee.com.br/6L65haWwfK)
+- **Escorredor De Arroz e de Massas Aço Inox Lava Alimentos Multiuso 22 Centímetros** — R$ 24,65 | 43% OFF. [Ver na Shopee](https://s.shopee.com.br/8AXjsxPxwz)
+
 - **Descanso de Mesa para Travessa e Panela MDF Folha Monstera Kit Econômico Utilidade Doméstica** — R$ 11,90 | 68% OFF. [Ver na Shopee](https://s.shopee.com.br/3VlsoEq7jj)
 - **Porta Crachá Rígido Vertical Colorido Kit com 500 Unidades** — R$ 84,97 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/9KjfkxByRr)
 - **Kit 50 Porta Crachá Rígido Vertical Cores Variadas Identificação Crachá** — R$ 20,37 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/9AQFYeCbmq)
