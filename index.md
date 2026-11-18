@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Processador de alimentos - manual - 3 Lâminas - aço Inox - 500ml - Triturador COR ALEATÓRIA** — R$ 21,17 | 58% OFF. [Ver na Shopee](https://s.shopee.com.br/7fbUrCaOzT)
+- **Kit De Espátulas Reta de Silicone Antiaderente Utilidade Domestica Multifuncional** — R$ 26,85 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/AKcG27LRmN)
+- **Espremedor Limão Manual Aço Inox Suco Citrico Produto Cozinha Utilidade Doméstica ProfissionaL** — R$ 16,85 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/60TGs9bwZd)
+- **Suporte Para Caneta Marcadora Touch 120 Canetas, Box Empilhavel com Colmeia** — R$ 21,95 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/5VX0HFzNBV)
+- **Solda em Fio Emavi Tubete 25g 4 Metros para Eletrônica e Reparos** — R$ 15,90 | 45% OFF. [Ver na Shopee](https://s.shopee.com.br/40iCUUVXd4)
+
 - **Descascador De Legumes Espiral Funil 12 cm Formato de Tiras** — R$ 22,89 | 67% OFF. [Ver na Shopee](https://s.shopee.com.br/4VeRWDdvOh)
 - **Tábua de Cortar Carne de Plástico 37cm x 24cm** — R$ 15,82 | 60% OFF. [Ver na Shopee](https://s.shopee.com.br/40iAvIfpPY)
 - **Abridor De Tampas Universal Potes Vidros Conserva Abre Fácil ONE TOUTCH** — R$ 36,95 | 51% OFF. [Ver na Shopee](https://s.shopee.com.br/5q9p6fYqgJ)
