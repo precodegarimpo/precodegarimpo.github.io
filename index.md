@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Carimbo Aqui tem Amor 4cmx4cm para sacolas kraft tags personalize sua embalagem** — R$ 14,90 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/3LSXIWLJFr)
+- **Escova Cabelo Espiral Desembaraçadora Tecnologia 3D Ceramica Nylon Antifrizz Previne Quebra Macia Oval Flexivel** — R$ 47,40 | 40% OFF. [Ver na Shopee](https://s.shopee.com.br/AUvhpa9z6b)
+- **Bandeja Espelhada Decorativa 2 Em 1 Espelho Parede E Bancada 30cm x 11.8cm x 1.5cm** — R$ 22,45 | 41% OFF. [Ver na Shopee](https://s.shopee.com.br/Lovizfrfl)
+- **Blusa Térmica Feminina Flanelada – Segunda Pele com Alta Elasticidade e Tecnologia Fresh Dry** — R$ 40,20 | 39% OFF. [Ver na Shopee](https://s.shopee.com.br/6Amifc8x0V)
+- **Blusa Térmica Feminina Flanelada – Segunda Pele com Alta Elasticidade e Tecnologia Fresh Dry** — R$ 40,20 | 39% OFF. [Ver na Shopee](https://s.shopee.com.br/5fqS4hAr1Q)
+
 - **Processador de alimentos - manual - 3 Lâminas - aço Inox - 500ml - Triturador COR ALEATÓRIA** — R$ 21,17 | 58% OFF. [Ver na Shopee](https://s.shopee.com.br/7fbUrCaOzT)
 - **Kit De Espátulas Reta de Silicone Antiaderente Utilidade Domestica Multifuncional** — R$ 26,85 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/AKcG27LRmN)
 - **Espremedor Limão Manual Aço Inox Suco Citrico Produto Cozinha Utilidade Doméstica ProfissionaL** — R$ 16,85 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/60TGs9bwZd)
