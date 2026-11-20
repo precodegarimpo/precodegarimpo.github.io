@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Relógio De Bolso , Eletrônico Suspenso LED Com Display Digital , Luminoso Portátil À Prova D'água** — R$ 12,15 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/3g5PGPyORc)
+- **Suporte Babá Eletrônica Compatível Câmera Vb603 Base 7 Cm** — R$ 9,99 | 67% OFF. [Ver na Shopee](https://s.shopee.com.br/5VX3RmrPim)
+- **Suporte Baba Eletronica Para Berco Universal** — R$ 15,90 | 60% OFF. [Ver na Shopee](https://s.shopee.com.br/7AfHQql4LG)
+- **Kits Espátula mais Colher de Silicone Antiaderente Utilidade Domestica** — R$ 29,97 | 44% OFF. [Ver na Shopee](https://s.shopee.com.br/5q9tqO89E4)
+- **Conjunto De Espátulas mais Colher de Silicone Antiaderente Utilidade Domestica Multifuncional** — R$ 29,97 | 44% OFF. [Ver na Shopee](https://s.shopee.com.br/5fqTe58mZ3)
+
 - **Carimbo Aqui tem Amor 4cmx4cm para sacolas kraft tags personalize sua embalagem** — R$ 14,90 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/3LSXIWLJFr)
 - **Escova Cabelo Espiral Desembaraçadora Tecnologia 3D Ceramica Nylon Antifrizz Previne Quebra Macia Oval Flexivel** — R$ 47,40 | 40% OFF. [Ver na Shopee](https://s.shopee.com.br/AUvhpa9z6b)
 - **Bandeja Espelhada Decorativa 2 Em 1 Espelho Parede E Bancada 30cm x 11.8cm x 1.5cm** — R$ 22,45 | 41% OFF. [Ver na Shopee](https://s.shopee.com.br/Lovizfrfl)
