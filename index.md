@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Kit 6 Sais Gourmet Churrasco e Cozinha Tempero Natural Sem Glúten Sem Conservantes Dom Picolotto** — R$ 79,99 | 53% OFF. [Ver na Shopee](https://s.shopee.com.br/AKcJCd9pt8)
+- **Porta Condimento Temperos Inox Magnético Com imã para Geladeira 6 Peças** — R$ 49,29 | 51% OFF. [Ver na Shopee](https://s.shopee.com.br/4B1hNa7fke)
+- **Carimbo Gratidão ter você como cliente 4cmx4cm para sacolas kraft tags personalize sua embalagem** — R$ 14,90 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/4fxxyW5qWk)
+- **Cesto De Metal Fruteira Organizador Decorativo Resistente** — R$ 34,25 | 43% OFF. [Ver na Shopee](https://s.shopee.com.br/3g5QmesSTL)
+- **Kit 3 Potes Porta Condimentos Temperos de Vidro com Suporte Tampa em Bambu Saleiro 270 ml** — R$ 58,35 | 42% OFF. [Ver na Shopee](https://s.shopee.com.br/2VtTOWE18A)
+
 - **Relógio De Bolso , Eletrônico Suspenso LED Com Display Digital , Luminoso Portátil À Prova D'água** — R$ 12,15 | 66% OFF. [Ver na Shopee](https://s.shopee.com.br/3g5PGPyORc)
 - **Suporte Babá Eletrônica Compatível Câmera Vb603 Base 7 Cm** — R$ 9,99 | 67% OFF. [Ver na Shopee](https://s.shopee.com.br/5VX3RmrPim)
 - **Suporte Baba Eletronica Para Berco Universal** — R$ 15,90 | 60% OFF. [Ver na Shopee](https://s.shopee.com.br/7AfHQql4LG)
