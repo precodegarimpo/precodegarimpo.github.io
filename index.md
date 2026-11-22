@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **30 Forminha, Cortador de Massinha de Modelar** — R$ 13,99 | 42% OFF. [Ver na Shopee](https://s.shopee.com.br/7fbY1hgNhK)
+- **100 Forminha, Cortador de Massinha de Modelar** — R$ 29,19 | 42% OFF. [Ver na Shopee](https://s.shopee.com.br/6fj0prkBjA)
+- **Kit Organizador de Cabo Grande Bobino - Cord Wrap Large - 3 Unidades** — R$ 21,99 | 41% OFF. [Ver na Shopee](https://s.shopee.com.br/2BGecttwyx)
+- **Balança Cozinha Digital  Até 10kg Visor Digital** — R$ 23,79 | 41% OFF. [Ver na Shopee](https://s.shopee.com.br/3Vm0aLt5oG)
+- **GUMMY de COLÁGENO VERISOL® com 2,5g de Peptídeos Bioativos por Gummy e Tecnologia Alemã - 30 Doses - Sabor Frutas Vermel** — R$ 131,77 | 39% OFF. [Ver na Shopee](https://s.shopee.com.br/W8P0i3LT3)
+
 - **Kit 6 Sais Gourmet Churrasco e Cozinha Tempero Natural Sem Glúten Sem Conservantes Dom Picolotto** — R$ 79,99 | 53% OFF. [Ver na Shopee](https://s.shopee.com.br/AKcJCd9pt8)
 - **Porta Condimento Temperos Inox Magnético Com imã para Geladeira 6 Peças** — R$ 49,29 | 51% OFF. [Ver na Shopee](https://s.shopee.com.br/4B1hNa7fke)
 - **Carimbo Gratidão ter você como cliente 4cmx4cm para sacolas kraft tags personalize sua embalagem** — R$ 14,90 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/4fxxyW5qWk)
