@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Kit 3 Potes  Tampa de Bambu Porta condimentos Temperos de Vidro com Suporte tampa em bambu** — R$ 48,95 | 51% OFF. [Ver na Shopee](https://s.shopee.com.br/4qHRfeQCEk)
+- **Fechadura Eletronica Digital Senha Biometria Cartao Preto ASUS** — R$ 295,00 | 41% OFF. [Ver na Shopee](https://s.shopee.com.br/2qWNI0O46x)
+- **Brinquedo Interativo para Gatos Bola de Poliéster com Haste de Madeira e Penas  25x4cm** — R$ 11,94 | 40% OFF. [Ver na Shopee](https://s.shopee.com.br/9Kjr1t4zb6)
+- **Kit 2 Suportes Porta Esponja Aço Inox Demima – Organizador de Pia Adesivo, Antiferrugem e Multifuncional** — R$ 17,78 | 40% OFF. [Ver na Shopee](https://s.shopee.com.br/60TP3lmxdG)
+- **Suporte Porta Esponja Gancho Aço Inox Cromado Prateado Escovado Bucha de Pia Cozinha Acessório Cuba Organização Demima** — R$ 12,68 | 40% OFF. [Ver na Shopee](https://s.shopee.com.br/40iKg5uZgx)
+
 - **30 Forminha, Cortador de Massinha de Modelar** — R$ 13,99 | 42% OFF. [Ver na Shopee](https://s.shopee.com.br/7fbY1hgNhK)
 - **100 Forminha, Cortador de Massinha de Modelar** — R$ 29,19 | 42% OFF. [Ver na Shopee](https://s.shopee.com.br/6fj0prkBjA)
 - **Kit Organizador de Cabo Grande Bobino - Cord Wrap Large - 3 Unidades** — R$ 21,99 | 41% OFF. [Ver na Shopee](https://s.shopee.com.br/2BGecttwyx)
