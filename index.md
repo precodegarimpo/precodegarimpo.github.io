@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Kit Ferramentas Precisão 38 Em 1 Chaves Celular Informática** — R$ 33,20 | 62% OFF. [Ver na Shopee](https://s.shopee.com.br/BVdbttUjo)
+- **Cabo Manga 4x22awg Áudio Vídeo Informática Automação e Iluminação Led RGB | Fio Flexível Preto 04 Vias** — R$ 129,00 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/3LSfNiU6OA)
+- **Caderno Universitário | Tecnologia Aesthetic | Técnico de Informática | Capa Dura & Espiral 1,10,15 e 20 Matérias** — R$ 18,20 | 48% OFF. [Ver na Shopee](https://s.shopee.com.br/6fj7LqUkXR)
+- **Quadro Steve Jobs Apple Informática Decorações S** — R$ 25,45 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/70LxkSG8wm)
+- **Antiodor Camiseta Masculina Pima Tecnologia D+ Algodão Lisa Manga Curta Premium ** — R$ 156,55 | 42% OFF. [Ver na Shopee](https://s.shopee.com.br/5AuI4DPerB)
+
 - **Kit 3 Potes  Tampa de Bambu Porta condimentos Temperos de Vidro com Suporte tampa em bambu** — R$ 48,95 | 51% OFF. [Ver na Shopee](https://s.shopee.com.br/4qHRfeQCEk)
 - **Fechadura Eletronica Digital Senha Biometria Cartao Preto ASUS** — R$ 295,00 | 41% OFF. [Ver na Shopee](https://s.shopee.com.br/2qWNI0O46x)
 - **Brinquedo Interativo para Gatos Bola de Poliéster com Haste de Madeira e Penas  25x4cm** — R$ 11,94 | 40% OFF. [Ver na Shopee](https://s.shopee.com.br/9Kjr1t4zb6)
