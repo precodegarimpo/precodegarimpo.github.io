@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Kit com 6 bolachas porta Copos e Canecas** — R$ 20,99 | 65% OFF. [Ver na Shopee](https://s.shopee.com.br/Lp5MO3xuX)
+- **Bandeja Decorativa De Vidro Fosco 30cm xc10cm x 2cm** — R$ 27,95 | 51% OFF. [Ver na Shopee](https://s.shopee.com.br/4VeeK3RdFc)
+- **TABUA DE CORTE DE CARNE  PLÁSTICA BRANCA 3 MODELOS CARNE/CHURRASCO REFORÇADA** — R$ 23,50 | 41% OFF. [Ver na Shopee](https://s.shopee.com.br/3qOxWoqdoO)
+- **Kit 5 Tags Identificações de Trocas para Saquinhos Organizadores de Mala de maternidade** — R$ 13,80 | 40% OFF. [Ver na Shopee](https://s.shopee.com.br/1gKSwrkOxD)
+- **Kit 5 Saquinho Saco Maternidade Bebê Organizador** — R$ 12,99 | 41% OFF. [Ver na Shopee](https://s.shopee.com.br/8AXwgoLekn)
+
 - **Kit Ferramentas Precisão 38 Em 1 Chaves Celular Informática** — R$ 33,20 | 62% OFF. [Ver na Shopee](https://s.shopee.com.br/BVdbttUjo)
 - **Cabo Manga 4x22awg Áudio Vídeo Informática Automação e Iluminação Led RGB | Fio Flexível Preto 04 Vias** — R$ 129,00 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/3LSfNiU6OA)
 - **Caderno Universitário | Tecnologia Aesthetic | Técnico de Informática | Capa Dura & Espiral 1,10,15 e 20 Matérias** — R$ 18,20 | 48% OFF. [Ver na Shopee](https://s.shopee.com.br/6fj7LqUkXR)
