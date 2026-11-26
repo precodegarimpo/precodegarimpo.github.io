@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Fechadura Digital Ibratec Wave de Sobrepor com Senha Touch e Chave Eletrônica Segurança Residencial** — R$ 193,50 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/9KjveRmOjt)
+- **Lancheira Hurley Bolsa Térmica Marmita Fitness Academia Lanche Espaçosa Resistente** — R$ 129,90 | 43% OFF. [Ver na Shopee](https://s.shopee.com.br/9V3LqivN3e)
+- **Colher de Silicone Premium Alta Temperatura Vermelha |Resistente ao Calor Utensílio de Cozinha** — R$ 22,90 | 36% OFF. [Ver na Shopee](https://s.shopee.com.br/7AfR4R4Fmu)
+- **Abelha Dançante Eletrônico a Pilha Emite Som, Luz e Dança Infantil Com Som Luz E Movimento Brinquedo** — R$ 38,89 | 35% OFF. [Ver na Shopee](https://s.shopee.com.br/8fUErA3kav)
+- **Kit Jogos Educativos Sortidos Brinquedo Infantil Barato Menino Menina Promoção** — R$ 38,94 | 35% OFF. [Ver na Shopee](https://s.shopee.com.br/9fMm2zzwZL)
+
 - **Kit com 6 bolachas porta Copos e Canecas** — R$ 20,99 | 65% OFF. [Ver na Shopee](https://s.shopee.com.br/Lp5MO3xuX)
 - **Bandeja Decorativa De Vidro Fosco 30cm xc10cm x 2cm** — R$ 27,95 | 51% OFF. [Ver na Shopee](https://s.shopee.com.br/4VeeK3RdFc)
 - **TABUA DE CORTE DE CARNE  PLÁSTICA BRANCA 3 MODELOS CARNE/CHURRASCO REFORÇADA** — R$ 23,50 | 41% OFF. [Ver na Shopee](https://s.shopee.com.br/3qOxWoqdoO)
