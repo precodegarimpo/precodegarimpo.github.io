@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Suporte Babá Eletrônica 360 Giratoria** — R$ 18,99 | 58% OFF. [Ver na Shopee](https://s.shopee.com.br/1LhfhnuF1s)
+- **Kit Completo Matemática e Ciências na Prática Ensino Fundamental | BNCC | INCA Tecnologia** — R$ 32,00 | 54% OFF. [Ver na Shopee](https://s.shopee.com.br/2gD1hsgCMh)
+- **Lancheira Onbongo Térmica Necessaire Masculina** — R$ 149,90 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/6fjC3ZsLMY)
+- **Vela de Aniversário 70 e uns diferente dourada ou prata** — R$ 13,80 | 37% OFF. [Ver na Shopee](https://s.shopee.com.br/3qOz6JdQID)
+- **Estojo Case Óculos Bobino Glasses Case Turquesa com Gancho Organizador Bolsa** — R$ 24,90 | 36% OFF. [Ver na Shopee](https://s.shopee.com.br/3VmAHn3ahN)
+
 - **Fechadura Digital Ibratec Wave de Sobrepor com Senha Touch e Chave Eletrônica Segurança Residencial** — R$ 193,50 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/9KjveRmOjt)
 - **Lancheira Hurley Bolsa Térmica Marmita Fitness Academia Lanche Espaçosa Resistente** — R$ 129,90 | 43% OFF. [Ver na Shopee](https://s.shopee.com.br/9V3LqivN3e)
 - **Colher de Silicone Premium Alta Temperatura Vermelha |Resistente ao Calor Utensílio de Cozinha** — R$ 22,90 | 36% OFF. [Ver na Shopee](https://s.shopee.com.br/7AfR4R4Fmu)
