@@ -8,6 +8,12 @@ title: Preço de Garimpo | Ofertas
 
 ## Ofertas em destaque
 
+- **Quadro Decorativo Grande Samurai Oriental Moderno Japonês Sala Quarto** — R$ 19,99 | 40% OFF. [Ver na Shopee](https://s.shopee.com.br/40iSPJuR76)
+- **Quadro Grande Decorativo Leão Com Coroa Dourada Premium Sala Quarto Escritório** — R$ 19,99 | 40% OFF. [Ver na Shopee](https://s.shopee.com.br/2qWV1BGtAz)
+- **Kit 5 Saquinho Saco Maternidade Bebê Organizador Menino Menina** — R$ 12,99 | 38% OFF. [Ver na Shopee](https://s.shopee.com.br/2qWV1DOoNK)
+- **Suporte de Babá Eletrônica Para Berço Universal Ajustável Flexível Monitor Bebê** — R$ 13,42 | 35% OFF. [Ver na Shopee](https://s.shopee.com.br/1qdxpMtUQT)
+- **50 Forminha, Cortador de Massinha de Modelar** — R$ 15,98 | 36% OFF. [Ver na Shopee](https://s.shopee.com.br/AUvw9DxiIq)
+
 - **Suporte Babá Eletrônica 360 Giratoria** — R$ 18,99 | 58% OFF. [Ver na Shopee](https://s.shopee.com.br/1LhfhnuF1s)
 - **Kit Completo Matemática e Ciências na Prática Ensino Fundamental | BNCC | INCA Tecnologia** — R$ 32,00 | 54% OFF. [Ver na Shopee](https://s.shopee.com.br/2gD1hsgCMh)
 - **Lancheira Onbongo Térmica Necessaire Masculina** — R$ 149,90 | 50% OFF. [Ver na Shopee](https://s.shopee.com.br/6fjC3ZsLMY)
